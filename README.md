@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @son-lamco
+- 👀 I’m interested in learnig new stuff
+- ⚡ Fun fact: I'm smarter than u
